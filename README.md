@@ -3,3 +3,5 @@ Kielbasa prosciutto pork belly tail alcatra boudin, t-bone turducken.  Pastrami 
 Pig capicola spare ribs, frankfurter hamburger boudin burgdoggen picanha pastrami venison shankle fatback andouille t-bone.  Fatback jowl corned beef pork belly porchetta shankle.  Buffalo chuck frankfurter, alcatra ball tip landjaeger cupim burgdoggen corned beef cow strip steak porchetta meatball fatback tongue.  Tenderloin chuck bresaola, burgdoggen kevin cow pork spare ribs t-bone strip steak salami sausage sirloin.  Biltong chicken turducken frankfurter.
 
 Shankle chicken biltong boudin pork.  Picanha landjaeger turkey bacon strip steak corned beef.  Fatback prosciutto jerky spare ribs biltong hamburger sirloin, pork chislic leberkas pork belly drumstick porchetta shoulder filet mignon.  Sirloin shankle pork chop landjaeger, jerky beef ham hock meatball fatback jowl short ribs tongue.  Turkey flank cupim pork loin.
+
+Collection note thank yet.
